@@ -1,2 +1,0 @@
-# Krupal Kuchhadiya Portfolio
- 
